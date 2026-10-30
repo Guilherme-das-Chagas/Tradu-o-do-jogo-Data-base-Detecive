@@ -1,0 +1,1 @@
+# Tradu-o-do-jogo-Data-base-Detecive
